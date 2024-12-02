@@ -1,4 +1,4 @@
-# ¡Hola! 👋 Soy [Tu Nombre]  
+# ¡Hola! 👋 Soy Adalberto Mina  
 
 🌟 **Ingeniero de Software | Líder Técnico | Apasionado por la Innovación** 🌟  
 
